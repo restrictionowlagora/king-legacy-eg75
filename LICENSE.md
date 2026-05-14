@@ -1,4 +1,4 @@
-
+Get ahead in king legacy with king legacy Scripts instant, featuring aimbot and undetectable. Download now to dominate every match with ease and confidence, thanks to its advanced
 
 
 
